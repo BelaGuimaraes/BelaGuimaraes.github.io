@@ -1,1 +1,0 @@
-# BelaGuimaraes.github.io
